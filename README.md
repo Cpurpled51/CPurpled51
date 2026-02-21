@@ -1,6 +1,6 @@
 ## Hi there 👋
 
-<!--
+<!--[g](https://files.catbox.moe/wf2ofj.gif)
 **Cpurpled51/CPurpled51** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
 Here are some ideas to get you started:
