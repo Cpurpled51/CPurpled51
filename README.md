@@ -1,7 +1,9 @@
 ## Hi there 👋
 
-<!--[g](https://files.catbox.moe/wf2ofj.gif)
-**Cpurpled51/CPurpled51** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+![Alt text for the image]([[images/screenshot.png](https://files.catbox.moe/o20bio.gif](https://i.postimg.cc/t4hQQYtz/0E40B93F-FC60-470B-9733-01319A8910AC.gif)))
+
+
+
 
 Here are some ideas to get you started:
 
