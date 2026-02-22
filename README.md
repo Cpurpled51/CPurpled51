@@ -3,11 +3,14 @@
 
 ![r](https://i.postimg.cc/d07KNwt7/D902762F-8025-4876-8658-3C63EDCA0483.webp) HELLOOO FRIENDSS❕❕
 
-hayyyyy!!! hello people from ponytown glad to meet youuuouu ٩(^‿^)۶ You can call me the M͟y͟ ͟n͟a͟m͟e͟ oror the colorful horse's🦄 name !! idm or care💤💤 anyone int bro idc what fandom!! I LOVE MEETING OTHERS!! ![🍿🍿🍰](https://i.postimg.cc/KzkBYkcX/FCC07910-A2FD-44D4-B725-E9D23E0743CE.gif)
+hayyyyy!!! hello people from ponytown glad to meet youuuouu ٩(^‿^)۶ You can call me the M͟y͟ ͟n͟a͟m͟e͟ oror the colorful horse's name🦄🦄 !! Any pronounss i 
+don't mind💤💤 anyone int vro idc what fandom!! I LOVE MEETING OTHERS!! ![🍿🍿🍰](https://i.postimg.cc/KzkBYkcX/FCC07910-A2FD-44D4-B725-E9D23E0743CE.gif)
 
 ..............!!🚨BE WARNED🚨 !! ............
 
- i will make sure my comfort comes before others while making friends ‼️‼️ sorr.. No DNI if i don't like you'll block
+
+ i will make sure my comfort comes before others while making friends ‼️‼️
+ sorryy.. No DNI!! I just block if i dislike you 
 
 
  
